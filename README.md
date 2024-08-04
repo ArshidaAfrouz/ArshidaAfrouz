@@ -1,4 +1,4 @@
-![71d480853493788225324080b16e084a](https://github.com/user-attachments/assets/2cec16ee-4881-4972-9f2d-5da048ac5fcd)
+![71d480853493788225324080b16e084a](https://github.com/user-attachments/assets/9432cc17-703e-4c50-be84-212e8e8cbbd3)
 
 - 👋 Hi, I’m @ArshidaAfrouz~!
 - 👀 I’m interested in Cats, IPhones, Biology and Computer Science.
