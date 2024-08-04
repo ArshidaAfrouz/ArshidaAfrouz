@@ -1,4 +1,4 @@
-![pinterestdownloader com-1689175839 073785](https://github.com/user-attachments/assets/d80e6eeb-5e6a-4ae9-bee3-7361038e006f)
+![pinterestdownloader com-1689175839 073785 (2)](https://github.com/user-attachments/assets/fb19822d-cba0-4601-bc02-5d0062a3390a)
 
 - 👋 Hi, I’m @ArshidaAfrouz~!
 - 👀 I’m interested in Cats, IPhones, Biology and Computer Science.
